@@ -1,6 +1,8 @@
 **"Startup Development Masterclass"**
 
 **Module Overview:**
+If you're nurturing a startup idea, we will help you technologically from scratch to your first sell of the startup journey. Influence by BIG.GOV.BD
+
 This training module aims to equip aspiring entrepreneurs and startup enthusiasts with the knowledge and skills necessary to build, launch, and scale successful startups. It covers key concepts, strategies, and practical steps for every stage of the startup journey.
 
 **Module Contents:**
