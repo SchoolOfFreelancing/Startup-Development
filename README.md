@@ -4,12 +4,12 @@ If you're nurturing a startup idea, we're here to assist you with technology eve
 
 This training module aims to equip aspiring entrepreneurs and startup enthusiasts with the knowledge and skills necessary to build, launch, and scale successful startups. It covers key concepts, strategies, and practical steps for every stage of the startup journey.
 
-**📢 Focus: New Startup Development**
-**📢 Duration: 6 months**
-**📢 Participation fee: $1900**
-**📢 GMI: Yes, if you meet the requirements**
-**📢 Training time: 10 PM to 12 AM GMT+6**
-**📢 Target Marketplace: Home and Abroad**
+**"📢 Focus: New Startup Development"**
+**"📢 Duration: 6 months"**
+**"📢 Participation fee: $1900"**
+**"📢 GMI: Yes, if you meet the requirements"**
+**"📢 Training time: 10 PM to 12 AM GMT+6"**
+**"📢 Target Marketplace: Home and Abroad"**
 
 **Module Contents:**
 
