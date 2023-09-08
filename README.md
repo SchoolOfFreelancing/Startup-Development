@@ -89,9 +89,7 @@ This training module aims to equip aspiring entrepreneurs and startup enthusiast
 **16. Capstone Project**
     - Participants work on a real or simulated startup project, applying the knowledge and skills gained throughout the training.
 
-**17. Graduation and Certification**
-
-**18. Post-Training Support**
+**17. Post-Training Support**
     - Providing ongoing mentorship or resources for participants as they embark on their startup journeys.
 
 Each module can be further divided into lessons and activities, and it's essential to incorporate practical exercises, discussions, and real-world examples to make the training engaging and effective. Additionally, consider offering resources, templates, and tools that participants can use in their startup endeavors.
