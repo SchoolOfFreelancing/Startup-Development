@@ -4,7 +4,7 @@ If you're nurturing a startup idea, we're here to assist you with technology eve
 
 This training module aims to equip aspiring entrepreneurs and startup enthusiasts with the knowledge and skills necessary to build, launch, and scale successful startups. It covers key concepts, strategies, and practical steps for every stage of the startup journey.
 
-*Enroll now using [bKash](https://shop.bkash.com/school-of-freelancing018907576/pay/bdt150000/DaV06a)
+**Enroll** now using [bKash](https://shop.bkash.com/school-of-freelancing018907576/pay/bdt150000/DaV06a)
 
 **A. Focus: New Startup Development**
 - Duration: 6 months
