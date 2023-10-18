@@ -7,9 +7,9 @@ This training module aims to equip aspiring entrepreneurs and startup enthusiast
 **A. Focus: New Startup Development**
 - Duration: 6 months
 - Fee: $150000
-- GMI: Yes, if you meet the requirements
+- Guaranteed 1st Sales: Yes if you fulfill all requirments 
 - Training time: 10 PM to 12 AM GMT+6
-- Target Marketplace: Home and Abroad
+- Target Customers: Home and Abroad
 
 **Module Contents:**
 
