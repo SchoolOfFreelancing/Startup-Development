@@ -1,6 +1,6 @@
 **"Startup Development Masterclass: From Startup to Unicorn"**
 
-If you're nurturing a startup idea, we're here to assist you with technology every step of the way, from initial ideation to your first successful sale. Influence by BIG.GOV.BD
+If you're nurturing a startup idea, we're here to assist you with technology every step of the way, from initial ideation to your first successful sale. 
 
 This training module aims to equip aspiring entrepreneurs and startup enthusiasts with the knowledge and skills necessary to build, launch, and scale successful startups. It covers key concepts, strategies, and practical steps for every stage of the startup journey.
 
